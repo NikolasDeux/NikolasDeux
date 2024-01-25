@@ -2,6 +2,6 @@
 - 👀 I’m interested in Astronomy, Music, Coding, Art and so much more
 - 🌱 I’m currently learning Piano, Singing, Java
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: Discord: (https://discord.com/channels/@me/853702778115719198)[Ghidosso]
+- 📫 How to reach me: Discord: [Ghidosso](https://discord.com/channels/@me/853702778115719198)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
